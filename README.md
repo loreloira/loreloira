@@ -1,11 +1,11 @@
  😆Quem sou eu?
- meu ome é Lorena,sou estudante
+ meu ome é ####,sou estudante
  
  😝O que eu faço?
- estudo ue
+ SOU HACKEADA
  
  😎Onde eu resido?
-eu moro em piraquara 
+eu moro em VC DEIXOU SUA CONTA LOGADA 
 
 
 
